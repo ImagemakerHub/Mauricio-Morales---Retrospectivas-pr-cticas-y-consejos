@@ -1,2 +1,2 @@
-# Mauricio-Morales---Retrospectivas-pr-cticas-y-consejos
+# Mauricio-Morales---Retrospectivas-prácticas-y-consejos
 Segunda Actividad: Retrospectivas prácticas y consejos
